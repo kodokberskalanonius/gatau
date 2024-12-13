@@ -1,0 +1,2 @@
+# gatau
+selalu bahagia
